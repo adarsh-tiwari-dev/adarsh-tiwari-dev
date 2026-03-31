@@ -38,7 +38,7 @@
 ## 📫 Connect With Me
 
 * 📧 Email: [adarshtiwari01232004@gmail.com](mailto:adarshtiwari01232004@gmail.com)
-* 💼 LinkedIn: https://linkedin.com/in/adarsh-tiwari
+* 💼 LinkedIn: https://linkedin.com/in/adarsh-tiwari-b30b5832b
 
 ---
 
